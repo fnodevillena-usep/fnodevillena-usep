@@ -1,1 +1,1 @@
-## Master in Information Technology student at University of Southeastern Philippines
+Master in Information Technology student at University of Southeastern Philippines
